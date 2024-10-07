@@ -3,12 +3,12 @@
 
 #### Itinerary Breakdown
 ##### Day1 
-- Fresh up after checking into the apartment, better to not underestimate the jet-lag.
+- Fresh up after checking into the apartment/hotel, better to not underestimate the jet-lag.
 - Dinner at **Mercado Atarazanas** 
 	- Online review says to try Fried Fish **Fritura Malagueña** and some local wine.
 	- [Reference link](https://www.spainfoodsherpas.com/the-ultimate-guide-to-malaga-atarazanas-food-market/?srsltid=AfmBOooYFkSIPEotfR8__N8HOrf5XpI6haXFF0U0wrLkmjLh4raunZox) to get the idea and maybe memorise few lines (Read Point 10 on the website) for basic conversation.
 ##### Day 2
-- Start the day early and have breakfast around a cafe.
+- Start the day early and have breakfast at a cafe.
 - Visit **Alcazaba** --> Allocate around 1.5 to 2hrs for this visit.
 - **Roman Theatre** Just below **Alcazaba**, this ancient site is free to visit.
 - **Lunch**: Recommendations to try tapas at a nearby restaurant, sampling local specialities like **Tortillitas de Gambas** (Shrimp Fritters)
