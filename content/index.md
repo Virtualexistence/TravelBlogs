@@ -1,5 +1,5 @@
 ---
-title: Welcome to My Obsidian Blogs
+title: Homepage
 ---
 
 This is a pretty new setup so expect the page to have quite small content 😊.
