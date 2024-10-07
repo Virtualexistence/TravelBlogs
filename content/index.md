@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Welcome to My Obsidian Blogs
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This is a pretty new setup so expect the page to have quite small content 😊.
