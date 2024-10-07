@@ -1,4 +1,4 @@
-`By Manideep 
+` By Manideep` 
 #### Duration of the Stay
 3 Days, 2 Nights
 
